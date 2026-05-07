@@ -1,4 +1,4 @@
-
+Experience hooked like never before with instant Script for hooked, the #1 Script. Includes auto-upgrade and speed for unbeatable performance.
 
 
 
